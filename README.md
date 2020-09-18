@@ -1,4 +1,4 @@
-I wanna admire you in some way, so I chose to sketch your pictures. Because "Beauty not admired is a sin". They might look creepy, but trust me, I'll get better.
+I wanna admire you in some way, so I chose to sketch your pictures. They might look creepy, but trust me, I'll get better. "Beauty not admired is a sin". 
 
 That's just a first trial. It'll be even better next time.
 
