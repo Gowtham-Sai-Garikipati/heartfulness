@@ -1,4 +1,4 @@
-I wanna admire you in some way, so I chose to sketch your pictures. They might look creepy, but trust me, I'll get better. "Beauty not admired is a sin". 
+I wanna admire you in some way, so I chose to sketch your pictures. At first it might look creepy, but observe closely, there's a hidden expression and emotion. "Beauty not admired is a sin". 
 
 <img src="images/insta_dp.jpeg" width="300" height="500"> 
 
